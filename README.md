@@ -72,7 +72,7 @@ Convertirme en una **desarrolladora competente** que cree soluciones innovadoras
 - 🚀 **Mentalidad de "sí se puede"** contagiosa
 - 📖 **Aprendizaje rápido** y adaptabilidad
 
----
+--
 
 ## 📞 Conectemos
 
